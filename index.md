@@ -1,4 +1,5 @@
 # Maria Luciani
+![Maria and friend hiking at Yosemite National Park](0FDE4F3D-764F-406A-8642-FA832D44037A.jpeg)
 
 Maria Luciani is a PhD student in the Social & Personality Psychology area at the University of California, Berkeley.
 Her research is broadly centered on the formation and maintenance of satisfying interpersonal relationships.
